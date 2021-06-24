@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **singhayush5740@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/ayush-singhdeo-5848831b8/detail/overlay-view/urn:li:fsd_profileTreasuryMedia:(ACoAADKsv3QBfmctMRytRz5vvU0-6U5AnfXoj6c,1635460559600)/](https://www.linkedin.com/in/ayush-singhdeo-5848831b8/detail/overlay-view/urn:li:fsd_profileTreasuryMedia:(ACoAADKsv3QBfmctMRytRz5vvU0-6U5AnfXoj6c,1635460559600)/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/ayush-singhdeo-5848831b8/detail/overlay-view/urn:li:fsd_profileTreasuryMedia:(ACoAADKsv3QBfmctMRytRz5vvU0-6U5AnfXoj6c,1635460559600)/]https://bit.ly/3dazQXG
 
 - ⚡ Fun fact **I love to play Ukulele**
 
